@@ -1,1 +1,1 @@
-# infa_2022_ivanov
+# infa_2022_salangin
